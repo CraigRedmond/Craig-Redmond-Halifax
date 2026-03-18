@@ -16,9 +16,9 @@ I also enjoy being social, staying engaged, and connecting with others who are w
 
 ## Online Presence
 
-- LinkedIn: [(add link)](https://www.linkedin.com/in/craig-redmond-6b57677b/)
-- Medium: [(add link)](https://medium.com/@craigredmondhalifax)
-- Linktree: [(add link)](https://linktr.ee/CraigRedmond)
+- LinkedIn: [(https://www.linkedin.com/in/craig-redmond-6b57677b/)]
+- Medium: [(https://medium.com/@craigredmondhalifax)]
+- Linktree: [(https://linktr.ee/CraigRedmond)]
 
 This profile is part of my broader online presence that I am growing, thank you for checking it out.
 Sincerely, Craig Redmond from Halifax.
