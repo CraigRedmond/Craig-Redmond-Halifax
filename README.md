@@ -22,3 +22,4 @@ I also enjoy being social, staying engaged, and connecting with others who are w
 
 This profile is part of my broader online presence that I am growing, thank you for checking it out.
 Sincerely, Craig Redmond from Halifax.
+ 
